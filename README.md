@@ -1,1 +1,0 @@
-# spesialgiftformyprettygf.github.io
